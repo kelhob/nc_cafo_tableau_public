@@ -23,6 +23,12 @@ As a result of Hurricane Florence, 49 lagoons were reported to be damaged struct
 
 https://earthjustice.org/article/hog-waste-creates-problems-for-north-carolina-residents
 
+https://vigilint.com/blog/hurricane-florence-aftermath-part-i-hog-waste-and-water-contamination/
+
+
+27 flooded  5 structural damage
+
+
 During Matthew, flooding was limited to six lagoons and two breaches, both on a hog farm in Greene County, according to NC DEQ
 
 https://climate.ncsu.edu/blog/2021/10/five-years-later-five-lessons-learned-from-matthew/#:~:text=During%20Matthew%2C%20flooding%20was%20limited,County%2C%20according%20to%20NC%20DEQ
